@@ -1,1 +1,8 @@
-Replace this with a list of your favorite things.
+### Abigail's Favorite things
+* Cello
+* SKZ and BTS 
+* Soccer
+  * Sounders
+  * Ballard FC
+  * USMNT
+  * USWNT
